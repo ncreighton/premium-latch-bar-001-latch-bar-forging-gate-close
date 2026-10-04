@@ -1,0 +1,2 @@
+# premium-latch-bar-001-latch-bar-forging-gate-close
+Tired of losing track of custom latch bar designs and gate close mechanisms across scattered notes? Your forge deserves a single, organized hub to master every project.  This Notion template centralizes your entire latch bar forging workflow—from initial sketch to final gate close assembly. Eliminate chaos, streamline material tracking, and never r
